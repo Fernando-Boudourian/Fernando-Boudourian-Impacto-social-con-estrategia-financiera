@@ -1,1 +1,2 @@
 # Fernando-Boudourian-Impacto-social-con-estrategia-financiera
+Los Donor-Advised Funds se convirtieron en una herramienta clave para quienes buscan gestionar su patrimonio con eficiencia fiscal y visión social. Permiten la diversificación de activos y la optimización de donaciones sin pagar impuestos sobre ganancias de capital. Su crecimiento sostenido muestra una tendencia hacia la planificación filantrópica estructurada, donde la transparencia y la regulación juegan un rol fundamental.
